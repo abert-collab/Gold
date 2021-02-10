@@ -1,0 +1,2 @@
+# Gold
+We are a group of local miners located in the East regions of Cameroon,we mine from 25 to 30 kg of raw gold bars in a month ,our main objective is to link buyer and seller together,we have a large market for gold and our prices are low as compare to the public market,we are looking for buyer from any part of the world who can buy raw gold bars ,or gold nuggets which will then be melted to pure gold bars,or buyer for diamonds For more information contact us on Whatsapp: (352) 388-1275 Email : mohammedsidiki607@gmail.com
